@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @zhenghxy
 - 👀 I’m interested in stats/math/finance/brain teasers/sudoku...
-- 🧙🏼‍♀️I bet I'm the best CHEMIST among all financial practitioners
+- 🧙🏼‍♀️ I bet I'm the best CHEMIST among all financial practitioners
 - 🌱 I’m currently learning Financial Engineering at Cornell University, and took my undergrad at the University of Wisconsin-Madiosn in Math & Economics!
 - ✨ Welcome to my secret wisdom vault
 
